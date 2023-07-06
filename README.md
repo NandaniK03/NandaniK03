@@ -1,5 +1,5 @@
 
-Hi, I am Nandani
+Hi, I am Nandani.
 I am a Research student at IISER Mohali, India.
 I like to discuss a variety of topics, pretty much everything except for Philosophy.
 I feel alive when I am learning.
