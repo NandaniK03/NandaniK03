@@ -1,0 +1,12 @@
+
+Hi, I am Nandani
+I am a Research student at IISER Mohali, India.
+I like to discuss a variety of topics, pretty much everything except for Philosophy.
+I feel alive when I am learning.
+I need to keep my brain busy - reading, discussing, gaming, debating - you name it. Otherwise, I'd feel bored and dead.
+📫 You can contact me via my email: kundalnandani@gmail.com
+
+<!---
+NandaniK03/NandaniK03 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
